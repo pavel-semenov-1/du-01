@@ -2,3 +2,4 @@
 ## Authors:
 + Pavel Semenov
 + Michaela Mattova
++ Katarina Dzurendova
