@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Pavel Semenov
-2.
+2. Katarina Dzurendova
 3.
 4.
