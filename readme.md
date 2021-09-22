@@ -14,5 +14,5 @@ Nas tim tvoria clenovia:
 
 1. Pavel Semenov
 2. Katarina Dzurendova
-3.
+3. Michaela Mattova
 4.
